@@ -51,11 +51,11 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [5G Spammer Team](https://www.facebook.com/groups/429757631078895/)
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [MR RAKIB WORLD commmd](https://https://facebook.com/groups/1378427952555488//)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [Termux Help-Line BD](https://www.facebook.com/groups/1070433763797159/)
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [Termux Help-Line BD](https://https://facebook.com/groups/1378427952555488/)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -63,7 +63,7 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [MR RAKIB Tech BD](http://www.youtube.com/channel/UC83st544vzS0gNIgkZdzbSA)
+- ➪ 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [MR RAKIB Tech BD](http://https://m.youtube.com/channel/UCO_zr6mvzzFRwADFiVjVY1w)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
