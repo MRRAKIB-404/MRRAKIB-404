@@ -31,7 +31,7 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 👬 𝙵𝚁𝙸𝙴𝙽𝙳𝚂 :- DK TANIM & JISHAN CHOWDHURY & MAMUN MIAH & IFAD IBRAHIM & SAMIR VAU & JONAED AHAMED & R.K RONI & SABBIR HOSSAIN
+- 👬 𝙵𝚁𝙸𝙴𝙽𝙳𝚂 :- Md Robiul hasan & SK Shojib & MR NAKI & MD ABDUL HAILEM&MR RAJ & JONAED AHAMED & R.K RONI & SABBIR HOSSAIN
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -43,19 +43,19 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 :- [Kausar Ahamed](https://www.facebook.com/innocent.devil.RAKIB.143)
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 :- [Md Rakib hossen](https://https://www.facebook.com/Itz.RAKiB.Sakib.Take.love)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺  𝙵𝙰𝙶𝙴 :- [IT'Z MR RAKIB](https://www.facebook.com/ITZ.RAKIB)
+- ➪𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺  𝙵𝙰𝙶𝙴 :- [Md Rakib hossen](https://www.facebook.com/Itz.RAKiB.Sakib.Take.love)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [MR RAKIB WORLD commmd](https://https://facebook.com/groups/1378427952555488//)
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [Termux MR RAKIB WORLD commmd](https://https://facebook.com/groups/1378427952555488//)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [Termux Help-Line BD](https://https://facebook.com/groups/1378427952555488/)
+- ➪ 𝙵𝙰𝙲𝙴𝙱𝙾𝙾𝙺 𝙶𝚁𝚄𝙿 :- [ltz MR-RAKIB ](https://www.facebook.com/ltz.ariyan.Sakib/)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -63,7 +63,7 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ➪ 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [MR RAKIB Tech BD](http://https://m.youtube.com/channel/UCO_zr6mvzzFRwADFiVjVY1w)
+- ➪ 𝚈𝙾𝚄𝚃𝚄𝙱𝙴 :- [MR.RAKIB ](http://https://m.youtube.com/channel/UCO_zr6mvzzFRwADFiVjVY1w)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
