@@ -32,8 +32,8 @@
 <p align="left">
 <a href="https://twitter.com/Rakibx00" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="xakibx00" height="30" width="40" /></a>
 <a href="https://fb.com/mr.RAKIB" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="mr.devil.vaiya" height="30" width="40" /></a>
-<a href="https://instagram.com/Mr_sRakib_" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="daddy_sakib_" height="30" width="40" /></a>
-<a href="https://www.youtube.com/c/MR RAKIB" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="joker vaiya sakib" height="30" width="40" /></a>
+<a href="https://instagram.com/Mr_Rakib_" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="MR_Rakib_" height="30" width="40" /></a>
+<a href="https://www.youtube.com/c/MR RAKIB" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="MR-Rakib" height="30" width="40" /></a>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
@@ -41,11 +41,11 @@
 
 
 <h3 align="left">Support:</h3>
-<p><a href="https://www.buymeacoffee.com/xakib0x"> <img align="left" src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" height="50" width="210" alt="xakib0x" /></a><a href="https://ko-fi.com/xakib0-x"> <img align="left" src="https://cdn.ko-fi.com/cdn/kofi3.png?v=3" height="50" width="210" alt="xakib0-x" /></a></p><br><br>
+<p><a href="https://www.buymeacoffee.com/xakib0x"> <img align="left" src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" height="50" width="210" alt="Rakib0x" /></a><a href="https://ko-fi.com/Rakib0-x"> <img align="left" src="https://cdn.ko-fi.com/cdn/kofi3.png?v=3" height="50" width="210" alt="Rakib0-x" /></a></p><br><br>
 
 
-<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=devil-sakib&show_icons=true&locale=en&layout=compact" alt="devil-sakib" /></p>
+<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=MR- Rakib&show_icons=true&locale=en&layout=compact" alt="MR-RAKIB" /></p>
 
-<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=devil-sakib&show_icons=true&locale=en" alt="devil-sakib" /></p>
+<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=MR-Rakib&show_icons=true&locale=en" alt="Mr-Rakib" /></p>
 
-<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=devil-sakib&" alt="devil-sakib" /></p>
+<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=MR-Rakib&" alt="mr-Rakib" /></p>
